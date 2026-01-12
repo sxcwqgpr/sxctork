@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Sc EDa
+ssr 
+fdi sxc 24r4 
+sdsdx 
+1h
+ss 
+pppa
+ap
